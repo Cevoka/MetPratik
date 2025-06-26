@@ -1,0 +1,1 @@
+Degerleme yapan arkadaslara basarılar. 
